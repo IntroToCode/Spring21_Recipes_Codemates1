@@ -1,8 +1,8 @@
-# Replace with recipe name
+# Ham & Cheese Crepes
 
-## Servings: 
+## Servings: 2 
 
-## Time to prepare: 
+## Time to prepare: 20 minutes
 
 ## Ingredients:
 
