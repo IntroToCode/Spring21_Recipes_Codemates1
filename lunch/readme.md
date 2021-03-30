@@ -1,8 +1,8 @@
-# Replace with recipe name
+# Grilled Vegetable Panini
 
-## Servings: 
+## Servings: 1
 
-## Time to prepare: 
+## Time to prepare: 20 minutes
 
 ## Ingredients:
 
