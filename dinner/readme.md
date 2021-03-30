@@ -8,6 +8,10 @@
 
 
 ## Equipment needed:
+Large pot
+Whisk
+Serving spoon
+Oven
 
 
 ## Steps for preparation:
