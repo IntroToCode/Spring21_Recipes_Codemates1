@@ -1,8 +1,8 @@
-# Replace with recipe name
+# Chicken Pot Pie
 
-## Servings: 
+## Servings: 4
 
-## Time to prepare: 
+## Time to prepare: 60 minutes
 
 ## Ingredients:
 
