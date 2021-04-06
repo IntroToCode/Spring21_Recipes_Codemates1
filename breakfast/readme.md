@@ -31,5 +31,3 @@ After 1 more minute, fold the crepe sides into a rectangular shape
 
 
 ### Codemates #
-
-Daniil
