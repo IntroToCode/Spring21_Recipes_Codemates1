@@ -11,7 +11,7 @@
 Mixing bowl
 Whisk
 Non-stick frying pan
-Spatula
+Spatula!!!
 
 ## Steps for preparation:
 
