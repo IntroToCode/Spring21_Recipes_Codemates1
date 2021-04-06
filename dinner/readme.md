@@ -19,7 +19,10 @@ Premade pie crust
 
 
 ## Equipment needed:
-
+Large pot
+Whisk
+Serving spoon
+Oven
 
 ## Steps for preparation:
 Preheat oven to 400 F
