@@ -17,7 +17,10 @@ Balsamic vinegar
 
 
 ## Equipment needed:
-
+Brush
+Tongs
+Grill (outdoor, indoor, pan, etc.)
+Knife
 
 ## Steps for preparation:
 Brush each vegetable slice with olive oil, then salt and pepper
