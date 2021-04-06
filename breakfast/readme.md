@@ -13,7 +13,10 @@ Sliced deli ham
 Sliced gruyere cheese  
 
 ## Equipment needed:
-
+Mixing bowl
+Whisk
+Non-stick frying pan
+Spatula
 
 ## Steps for preparation:
 In a mixing bowl, whisk together the flour, milk, 1 tablespoon melted butter and salt until well incorporated
