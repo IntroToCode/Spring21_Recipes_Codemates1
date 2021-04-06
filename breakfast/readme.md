@@ -20,4 +20,3 @@
 
 ### Codemates #
 
-Daniil
