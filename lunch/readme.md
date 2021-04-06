@@ -8,7 +8,10 @@
 
 
 ## Equipment needed:
-
+Brush
+Tongs
+Grill (outdoor, indoor, pan, etc.)
+Knife
 
 ## Steps for preparation:
 
