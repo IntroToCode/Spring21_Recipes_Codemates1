@@ -17,7 +17,7 @@ Balsamic vinegar
 
 
 ## Equipment needed:
-Brush  
+Brush.
 Tongs. 
 Grill (outdoor, indoor, pan, etc.). 
 Knife. 
